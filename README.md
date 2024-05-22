@@ -22,5 +22,5 @@
 | you | can be here. just dm me <3 |
 
 # contacts:
-- [https://t.me/mentallydiedkid](telegram)
-- [https://dsc.gg/amnesialua](discord server)
+- [telegram](https://t.me/mentallydiedkid)
+- [discrod serever](https://dsc.gg/amnesialua)
